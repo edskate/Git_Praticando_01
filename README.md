@@ -1,2 +1,8 @@
-# https://www.youtube.com/watch?v=QkI4gXb8tQ8
+# Engles:
+- Farst neim (Fist name)
+- Could  you help me? (Culd iu relp mi)
+- Can you show me
+- how  (rau)
+
+
 
